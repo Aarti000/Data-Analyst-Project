@@ -99,7 +99,7 @@ To leverage data analytics skills to solve real-world business problems and crea
 
 ## 📬 Connect With Me
 
-* LinkedIn: *(Add your link here)*
+* LinkedIn: https://www.linkedin.com/in/aarti-anthwal-454422262
 * Email : aartyanthwal@gmail.com
 
 ---
